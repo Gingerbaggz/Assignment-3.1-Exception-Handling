@@ -1,0 +1,1 @@
+This was tough. I started this thinking I was working towards my final project, but my mind got jambled so I went simple using some of this weeks info as well as research using google and Microsoft Learn
